@@ -1,0 +1,1 @@
+Read Hito Steyerl's new book
